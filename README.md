@@ -35,4 +35,5 @@
 　　　　　　*　　　　　　　　　　　.
 .　　　　　　　　　　　　　. 　　✦⠀　   　　　,　　　　　　　　　*
 　　　　　⠀　　　　⠀　　
-               best viewed on mobile ★
+
+>  best viewed on mobile ★
