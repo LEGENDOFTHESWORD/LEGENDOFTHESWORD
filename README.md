@@ -8,14 +8,13 @@
 
 
 
-![tung tung tung sahur](f69b8dfde7aaa146ec38c1616b3f94c5~3.jpg)
-
 　　　　　　*　　　　　　　　　　　.
 .　　　　　　　　　　　　　. 　　✦⠀　   　　　,　　　　　　　　　*
 　　　　　⠀　　　　⠀　　,
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀.　　　　　 　　⠀　　　⠀.　
  　　˚　　　⠀　⠀  　　,　　　　　　.
 　　　　　　　　　　　　　.
+![tung tung tung sahur](df9b109130e2b412d4f92e8b0d227ca5.gif)
 　　　　　　*⠀　　⠀  　　　　　⠀✦⠀　
 　　　　　　*　　　　　　　　　　　　　　　　　　.
 　　　　.　　　　.　　　⠀
