@@ -35,5 +35,5 @@
 　　　　　　*　　　　　　　　　　　.
 .　　　　　　　　　　　　　. 　　✦⠀　   　　　,　　　　　　　　　*
 　　　　　⠀　　　　⠀　　
-
->  best viewed on mobile ★
+                    
+>  best viewed on mobile ★ <img src="lobo-03.gif" width="55" height="55">
