@@ -1,4 +1,4 @@
-[𝓪𝓽𝓪𝓫𝓸𝓸𝓴](https://probablyyakov.atabook.org/)★[𝓹𝓪𝓽𝓻𝓮𝓸𝓷](https://www.patreon.com/c/KNlGHTOFTHELAKE)★[𝓹𝓻𝓸𝓷𝓸𝓾𝓷𝓼](https://pronouns.cc/@knightofthelake)★[𝓼𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮](https://knlghtofthelake.straw.page/)
+[𝓪𝓽𝓪𝓫𝓸𝓸𝓴](https://probablyyakov.atabook.org/)𝓔[𝓹𝓪𝓽𝓻𝓮𝓸𝓷](https://www.patreon.com/c/KNlGHTOFTHELAKE)𝓔[𝓹𝓻𝓸𝓷𝓸𝓾𝓷𝓼](https://pronouns.cc/@knightofthelake)𝓔[𝓼𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮](https://knlghtofthelake.straw.page/)ᝰ.ᐟ
 
 
 
