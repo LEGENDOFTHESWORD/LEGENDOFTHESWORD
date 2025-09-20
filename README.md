@@ -13,5 +13,5 @@
 >.　　　　　　　　　　　　　. 　　✦⠀　   　　　>,　　　　　　　　　*
 ![tung tung tung sahur](f1edfd8e109b244610689d459902319f.gif)
 　　　　　　*⠀　　⠀  　　　　　⠀✦⠀　
-　　　　*　　　　　　　　　　　　　　　　　　.
+　　　　　　　　　　　　　　　　　　　　　　.
 best viewed on mobile ★ <img src="lobo-03.gif" width="55" height="55">
