@@ -15,7 +15,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀.　　　　　 　　⠀　　　⠀.　
  　　˚　　　⠀　⠀  　　,　　　　　　.
 　　　　　　　　　　　　　.
-![tung tung tung sahur](df9b109130e2b412d4f92e8b0d227ca5.gif)
+![tung tung tung sahur](f1edfd8e109b244610689d459902319f.gif)
 　　　　　　*⠀　　⠀  　　　　　⠀✦⠀　
 　　　　　　*　　　　　　　　　　　　　　　　　　.
 　　　　.　　　　.　　　⠀
